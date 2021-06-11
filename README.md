@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @DavidJWill02
+- 🌱 I’m currently learning ...Quantitative Finance, Advanced Mathematics, Coding, Database Infrastructures, and More!
+- 📫 How to reach me ...davidjeromewilliams02@gmail.com
